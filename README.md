@@ -1,1 +1,1 @@
-# oasis-graphic-designer-intern
+# oasis infobyte-graphics-design-intern
